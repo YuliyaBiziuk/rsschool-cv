@@ -4,7 +4,9 @@
 ## CONTACTS:
 > Email:  yuliyab.design@gmail.com  
 > Phone: +18603042317
-> Portfolio: [yuliyaby.com](https://yuliyaby.com)
+
+##Portfolio: 
+[yuliyaby.com](https://yuliyaby.com)
 
 ---
 
