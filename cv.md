@@ -4,7 +4,7 @@
 ## CONTACTS:
 > Email:  yuliyab.design@gmail.com  
 > Phone: +18603042317
-> Portfolio: [GitHub](https://github.com)
+> Portfolio: [yuliyaby.com](https://yuliyaby.com)
 
 ---
 
